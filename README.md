@@ -1,2 +1,2 @@
-# adilyamurzabaeva.github.io
+# amurzabaeva.github.io
 
